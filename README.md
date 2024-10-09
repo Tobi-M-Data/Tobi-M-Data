@@ -6,7 +6,7 @@
 - 🤝 Looking to collaborate on interesting projects.
 - 📧 Feel free to reach out: tobimautin@gmail.com
 - 😄 Pronouns: Him/He
-- ⚡ Fun fact:I close my eyes to make ideas clearer and practice mindful breathing.
+- ⚡ Fun fact: Romans 8:28
 
 <!---
 Tobi-M-Data/Tobi-M-Data is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
